@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ZVB008
+- 👀 I’m interested in computer
+- 🌱 I’m currently learning to code
+- 💞️ I’m looking to collaborate on idk
+- 📫 How to reach me discord ZVB08#2107
